@@ -1,4 +1,4 @@
-# Galaxy-A53-5G_Food-Photos
+# Galaxy-A53-5G_Food-Photo
 
 CC-BY-4.0- RuinDig/Yuki Uchida
 
