@@ -70,7 +70,7 @@ Food photos with Samsung's smartphone, Galaxy A53 5G. All photos are taken with 
 
 **015**
 
-![Galaxy-A53-5G_Food-Photos_015](https://raw.githubusercontent.com/RuinDig/Galaxy-A53-5G_Food-Photos/main/Photos/Galaxy-A53-5G_Food-Photo_015.JPG)
+![Galaxy-A53-5G_Food-Photos_015](https://raw.githubusercontent.com/RuinDig/Galaxy-A53-5G_Food-Photos/main/Photos/Galaxy-A53-5G_Food-Photos_015.JPG)
 
 **016**
 
